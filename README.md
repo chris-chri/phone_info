@@ -1,6 +1,6 @@
 # What is the website aobut
 
-Want to know information on the newest and the affordable devices in the market will the website gives you the infromation needed and the website links to buy them in that instance. 
+WANT to know information on the newest and the affordable devices in the market well the website gives you the infromation needed and the website links to buy them in that instance. 
 
 
 # What i used
